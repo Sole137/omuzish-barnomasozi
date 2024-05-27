@@ -1,0 +1,2 @@
+# omuzish-barnomasozi
+omuzish barnomasozi
